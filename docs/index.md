@@ -68,7 +68,7 @@ I have been very proactive, balancing academics and co-scholatic activites. Here
 
 
 
-## EXTRA CURRICULARS
+### EXTRA CURRICULARS
 
 I love playing the keyboard,in fact I finished Grade 8 Trinity examination. 🎹I spend time painting - mainly do canvas works (working on a portrait of my lovely pet bird)
 
@@ -76,7 +76,7 @@ I've also always been an avid gamer - both console and mobile. I am a Marvel fan
 
 I like jam to the latest pop music - Imagine Dragons, TS, Coldplay - you name it. Here's what I'm currently [vibing to](https://open.spotify.com/playlist/37i9dQZF1Epjhqq4MYttfT?si=75763025ffb945dc) playlist.
 
-## CONTACT ME
+### CONTACT ME
 
 Feel like I am a suitable candidate? Contact me through these channels:
 
